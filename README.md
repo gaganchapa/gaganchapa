@@ -23,7 +23,5 @@
 
 ---
 
-### 📬 **Let’s Connect!**
-💼 [LinkedIn](https://linkedin.com/in/yourprofile) | 📝 [Google Scholar](https://scholar.google.com/citations?user=yourprofile) | 🌎 [Website](https://yourwebsite.com)  
 
 ✨ *Always exploring, always learning.* 🚀  
